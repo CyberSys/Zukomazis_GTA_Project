@@ -27,7 +27,7 @@ You can use for profitable projects.
 
 3. Don't use the Gun Sounds or Hit Marker sound, or you may be sued by Activision
 
-Original autors roject page from itch.io 
+Original autors project page from itch.io 
 https://zukomazi.itch.io/gta-project
 
 Youtube
